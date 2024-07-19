@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **maulanadaffa342@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/12_KV0am10ArgkA-IaXjsxJMjE8DOLaK9/view?usp=sharing](https://drive.google.com/file/d/12_KV0am10ArgkA-IaXjsxJMjE8DOLaK9/view?usp=sharing)
+- 📄 Know about my experiences [https://shorturl.at/R6xt7](https://shorturl.at/R6xt7)
 
 - ⚡ Fun fact **I love to play fps game but i have motion sickness**
 
