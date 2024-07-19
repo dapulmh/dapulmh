@@ -12,7 +12,7 @@
 
 - 📝 I regularly write articles on [https://medium.com/@maulanadaffa342](https://medium.com/@maulanadaffa342)
 
-- ⚡ Fun fact **I am male**
+- ⚡ Fun fact **I love to play fps game but i have motion sickness**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
