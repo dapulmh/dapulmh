@@ -8,9 +8,15 @@
 <p align="left"> <a href="https://twitter.com/dapul044" target="blank"><img src="https://img.shields.io/twitter/follow/dapul044?logo=twitter&style=for-the-badge" alt="dapul044" /></a> </p>
 
 
+- 📝 I'm study **Computer Science at University of Indonesia**
+
 - 🌱 I’m currently learning **Generative AI Stuffs**
 
 - 📝 I regularly write articles on [https://medium.com/@maulanadaffa342](https://medium.com/@maulanadaffa342)
+
+- 📫 How to reach me **maulanadaffa342@gmail.com**
+
+- 📄 Know about my experiences [https://drive.google.com/file/d/12_KV0am10ArgkA-IaXjsxJMjE8DOLaK9/view?usp=sharing](https://drive.google.com/file/d/12_KV0am10ArgkA-IaXjsxJMjE8DOLaK9/view?usp=sharing)
 
 - ⚡ Fun fact **I love to play fps game but i have motion sickness**
 
