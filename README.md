@@ -10,7 +10,7 @@
 
 - 📝 I'm study **Computer Science at University of Indonesia**
 
-- 🌱 I’m currently learning **Generative AI Stuffs**
+- 🌱 I’m currently learning **AI & Cloud Solutions**
 
 - 📝 I regularly write articles on [https://medium.com/@maulanadaffa342](https://medium.com/@maulanadaffa342)
 
